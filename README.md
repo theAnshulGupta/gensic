@@ -3,4 +3,3 @@ Generative Music Therapy Based on Physiological Properties and Biometric Trait P
 <br>
 Patent-pending inventions that ameliorates overstimulation and stress for neurodiverse individuals.
 <br>
-Synopsys Championship Intelligent Systems Award
